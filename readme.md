@@ -2,6 +2,6 @@
 
 Esta serie de libro cuentan la historia de un hacker excepcional.
 
-**Bito Alegre**
+**Bito Alegre**, Larry Plotter Fan
 
 
